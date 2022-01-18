@@ -12,6 +12,8 @@ Plataforma : Youtube
 
 [Professor Kenny](https://www.youtube.com/watch?v=X5TdMsc4YCg&list=PL41dMNqXopt85RhRgFp_jdoI5Bz7DUG-c)
 
+[Learn English With Gill](https://www.youtube.com/watch?v=4e9pSFN795U&list=PLjvCo2ax1ZUdXCO23ICAF0H3N9c35SWfv)
+
 ## Espanhol :
 [Kultivi](https://www.youtube.com/watch?v=ug6w0dDA7zE&list=PL8vXuI6zmpdhL0QvzsaQ7VIHSyT9xkjvT)
 
